@@ -2,3 +2,5 @@ i'm just learning and seriously this so tough. i need someone to guide but i hav
 i have to do things by myself.
 no matter how much time it will take.
 let's keep going on.
+
+just striving to do more and more with each passing minute
